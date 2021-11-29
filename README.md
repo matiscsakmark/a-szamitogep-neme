@@ -1,0 +1,1 @@
+# a-szamitogep-neme
